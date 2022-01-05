@@ -2,7 +2,7 @@
 - 👀 I’m interested in Reading Books, Travelling
 - 🌱 I’m currently learning web designing
 - 💞️ I’m looking to collaborate onautomation
-- 📫 How to reach me tusharkhadgi2@gmail.com 📞 +91 9113244617 
+- 📫 How to reach me tusharkhadgi2@gmail.com 📞 +91 9767923262 
 
 <!---
 tkhadgi62/tkhadgi62 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
